@@ -1,2 +1,2 @@
-# lynnshajing.github.io
+# lynnshahuang.github.io
 personal website
